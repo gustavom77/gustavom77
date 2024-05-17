@@ -5,7 +5,7 @@
 
  to usando esse negócio para minha organização e compartilhamento dos meus projetos ai que virão.
  
-  to usando esse negócio para minha organização e compartilhamento dos meus projetos ai que virão.
+  
  
  
 Você pode entrar em contato comigo 📫  
